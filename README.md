@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SpockJenkins
+- 👀 I’m interested in new Crypto defi forks, especially up and coming ones related to Titano (Titano-Finance)
+- 🌱 I’m currently learning about DAO's
